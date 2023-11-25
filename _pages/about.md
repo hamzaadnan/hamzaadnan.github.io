@@ -50,9 +50,11 @@ Work
     - Teaching Assistant for Applied Probability (60+ students: mostly graduate students, seniors, and some juniors)
     - Co-designed and am a Teaching Assistant for Design and Measurement Lab (40+ freshman students) (a lab on hardware interfacing, processing signals, and actuation)
 
-2. Venture Analyst Intern at Fatima Gobi Ventures (Summer 2022)
+2. Research Assistant at [CITY](https://city.lums.edu.pk/)
 
-3. Plant Intern at Lotte Chemicals Pakistan (2019)
+3. Venture Analyst Intern at Fatima Gobi Ventures (Summer 2022)
+
+4. Plant Intern at Lotte Chemicals Pakistan (2019)
 
 
 Other
